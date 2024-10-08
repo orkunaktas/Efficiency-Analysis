@@ -31,4 +31,4 @@ Pass King: Rodri (376.0)
 xG King: Erling Haaland (29.2)
 xAG King: Bruno Fernandes (11.8)
 
-Even though Cole Palmer 🥶🥶🥶🥶🥶 had the highest score in terms of efficiency score, Phil Foden was chosen as the best player of the season. The main reason for this selection is not only Foden's individual performance but also his contribution to the team's success. Foden's impact on the game and his role in his team's overall success made him stand out as the best player of the season.. 🌟👏
+Even though Cole Palmer 🥶🥶🥶🥶🥶 had the highest score in terms of efficiency score, Phil Foden was chosen as the best player of the season. The main reason for this selection is not only Foden's individual performance but also his contribution to the team's success. Foden's impact on the game and his role in his team's overall success made him stand out as the best player of the season. 🌟👏
